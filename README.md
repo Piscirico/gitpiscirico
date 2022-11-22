@@ -1,7 +1,7 @@
 # Bem vindo(a) ao meu perfil 
 olá , sou Luiz Henrique Maciel 
 
-Teresopolitano, residindo em Abu Dhabi .
+Imagem e semelhanca do grande criador !
 
 ## Meus hobbies
 
